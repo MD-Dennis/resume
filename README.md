@@ -4,7 +4,7 @@ AI Safety & Evaluation Consultant with 7+ years of experience in AI data annotat
 
 ### Résumé
 
-[**View My Résumé**](https://myresume-dennis.netlify.app)
+[**View My Résumé**](https://drive.google.com/file/d/1rBATsopHeD15RHwmzyzbOUpaSi-hUPBL/view?usp=sharing)
 
 ### Professional Links
 
